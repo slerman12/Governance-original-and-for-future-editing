@@ -67,13 +67,15 @@
 <!--
       - For elaboration on the influence of Covid to American perceptions of the medical system and medical institutions, their practices, and my specific policies, more discussion [below](#kamala-and-democracy).
 -->
- 
+
+<--
 ### Presidency
 
 - Bernie, not just Covid, also pushed Biden and the Democrats into making some good policy decisions:
   - Student debt repayment moratoria and, surprisingly, [cancellation](https://www.youtube.com/live/k2steBZ1JyE?si=v-YdO9nD8C3sGaOn) though [not to the extent that Bernie described in 2020](https://berniesanders.com/issues/free-college-cancel-debt/) nor [as Jill Stein in 2016](https://youtu.be/eKOdcxU6Clo?si=LQm7IFYPt4VPlssZ), with emails of confirmation delivered to recipients confirming their approval for the oncoming cancellation (I myself received one, confirming $20,000 of debt forgiveness, due to my having received the Pell Grant), that the Supreme Court, surprisingly, overturned ([beyond the Supreme Court's authority](https://www.nbcnews.com/politics/supreme-court/justice-kagan-calls-student-loan-decision-overreach-blows-constitution-rcna92044), at least going by ["a strict textual interpretation of the law,"](https://nymag.com/intelligencer/2023/03/will-the-supreme-court-overturn-student-debt-relief-forgiveness-cancellation-biden.html) reportedly). Notably, student debt cancellation (not just free college) was pretty radical even as recently as 2016 (same with $15 minimum wage, which [Bernie made mainstream in 2016](https://www.politico.com/story/2016/07/bernie-sanders-minimum-wage-party-platform-225325), [amid Democratic party opposition](https://www.google.com/url?sa=t&source=web&rct=j&opi=89978449&url=https://www.nytimes.com/2016/02/17/opinion/hillary-clinton-should-just-say-yes-to-a-15-minimum-wage.html&ved=2ahUKEwi8qvae3_qGAxUJEVkFHQ_sDlAQFnoECBYQAQ&usg=AOvVaw00DW8oLmECgIVRgyvgkTMm), now [being implemented in a third of the US,](https://www.hourly.io/post/minimum-wage-by-state#:~:text=Which%20States%20Have%20a%20%2415,%2415%20per%20hour%20or%20above.&text=While%20not%20a%20state%2C%20Washington,wage%20of%20%2417%20per%20hour.) thanks to his education of the Democratic elite). And speaking of other major changes he inspired, [never have there been more progressives in the House of Representatives](https://progressives.house.gov) since his runs.
   - And probably much more.
-  - Obama was wrong, as Bernie was known as the ["Amendment King"](https://www.politifact.com/factchecks/2016/mar/24/bernie-sanders/bernie-sanders-was-roll-call-amendment-king-1995-2/) prior to his presidential runs, [as named by Rolling Stone in 2005](https://www.rollingstone.com/feature/inside-the-horror-show-that-is-congress-177955/).
+  - Obama was wrong, as Bernie was known as the ["Amendment King"](https://www.politifact.com/factchecks/2016/mar/24/bernie-sanders/bernie-sanders-was-roll-call-amendment-king-1995-2/) prior to his presidential runs, [as named by Rolling Stone in 2005](https://www.rollingstone.com/feature/inside-the-horror-show-that-is-congress-177955/). 
+-->
 
 ## Bernie and Trump
 
