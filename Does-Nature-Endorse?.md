@@ -68,7 +68,7 @@
       - For elaboration on the influence of Covid to American perceptions of the medical system and medical institutions, their practices, and my specific policies, more discussion [below](#kamala-and-democracy).
 -->
 
-<--
+<!--
 ### Presidency
 
 - Bernie, not just Covid, also pushed Biden and the Democrats into making some good policy decisions:
