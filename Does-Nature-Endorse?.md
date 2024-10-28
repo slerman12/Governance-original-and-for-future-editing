@@ -128,13 +128,17 @@
 ### 13
 
 - "13" is the *8th* major synchronicity of 1968, since I didn't include it in the counting before.
-  - Only 13 states voted in the Democratic primaries in 1968.
+  - Only 13 states were allowed to vote in the Democratic primaries in 1968, and the others weren't counted at all.
   - ~13 swing states get to disproportionately decide between Kamala and some other Democratic nominee, in the 2024 race.
-- There is a [175% increase in black women voter registration in 13 states](https://youtu.be/1EaP98vbR84?si=79f0oI29BQXHRbBz&t=342), under Kamala as the nominee. Citing as reported, [13](https://youtu.be/1EaP98vbR84?si=79f0oI29BQXHRbBz&t=342).
-  - Kamala Harris comes from a family of migrants, including a Jamaican father and an Indian mother. I don't know if that's a conscious joke by the universe, but America is built on black people and Native Americans.
+- There is a [175% increase in black women voter registration in 13 states](https://youtu.be/1EaP98vbR84?si=79f0oI29BQXHRbBz&t=342), under Kamala as the nominee. Citing as reported, [13 states](https://youtu.be/1EaP98vbR84?si=79f0oI29BQXHRbBz&t=342). 13 is an ominous number, but this is not ominous. This is good. Harris comes from a family of migrants, including a Jamaican father and an Indian mother. I don't know if that's a conscious joke by the universe, but America is built on the shoulders of black people and Native Americans.
     - Xenophobia is an extreme fear in America. Even though we are the immigrants, the colonialists who literally took the land that wasn't ours — from Native Americans. Not Indians. The British did that. Too.
         - Voter identification laws make sense.
+        - I don't believe in any borders. I'm a globalist, the scary dangerous person Russell Brand, who has uncharacteristically endorsed Trump, [is railing about](https://www.instagram.com/russellbrand/reel/DBhcfcXyNCg/). I guess [not caring for boundaries](https://youtu.be/joyrLi0Rjck?si=rZtAPWDAJ0wMux6T) and not being born in America are but two things, the lifelong Che Guevara citing leftist and I, [have in common](https://www.facebook.com/share/p/Fk3y8Q3gF5N2ZZuE/).
+          - But until such a time as we can imagine all the people living life in peace, imagine no countries, maybe no religion too, because we all have unified under God, Nature, or whatever the truth is, border patrols, police, and laws make sense.
+            - Some Russell Brand humor here, since I don't want to ruin my brand, "You know it kind of went too far when 'Imagine all the people living life in peace' becomes 'Don’t imagine John Lennon not being dead [uncanceled](https://youtu.be/w1HqnH9kkoc?si=PPMbPBeuLhNCk5R_).'" I once stole a ["I'm the second coming. You'll be the first 😉"](https://dai.ly/x5rvr3q) joke from him, so he can take the ID on this one.
+              - [People make mistakes.](https://www.vox.com/culture/2023/9/18/23878706/russell-brand-sexual-assault-allegations)
         - As for job market competition, the most dangerous competitor is automation and robotics in industry, but machines, or people, doing the work we don't want to do, for us, under a good economic system, should not be a bad thing.
+          - Unless that work is love, and I mean love. TV, movies, video games, porn, dildos, fleshlights, Harry Potter books, I don't know. Sex bots.
 
 ### Voting Reforms
 
