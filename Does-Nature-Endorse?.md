@@ -30,7 +30,8 @@
  
 ### Second and third states
 
-- Such as the fact that it was [statistically unprecedented](https://youtu.be/SknqmOfXDSI?si=67VTmYjfVix-xepM) for somebody to win the popular vote in Iowa, New Hampshire, [*and Nevada*](https://www.politico.com/news/2020/02/22/nevada-caucuses-biden-sanders-116719), as Bernie did, all three first states, and not become the party nominee. 
+- Such as the fact that it was [statistically unprecedented](https://youtu.be/SknqmOfXDSI?si=67VTmYjfVix-xepM) for somebody to win the popular vote in Iowa, New Hampshire, [*and Nevada*](https://www.politico.com/news/2020/02/22/nevada-caucuses-biden-sanders-116719), as Bernie did, all three first states, and not become the party nominee.
+- Was that a synchronicity or the result of corruption?
 
 ### Fourth state
 
