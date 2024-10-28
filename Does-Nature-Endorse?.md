@@ -79,7 +79,7 @@
 
 ### Amendment King
 
-  - Obama was wrong, as Bernie was known as the ["Amendment King"](https://www.politifact.com/factchecks/2016/mar/24/bernie-sanders/bernie-sanders-was-roll-call-amendment-king-1995-2/) prior to his presidential runs, [as named by Rolling Stone in 2005](https://www.rollingstone.com/feature/inside-the-horror-show-that-is-congress-177955/). 
+  - Obama was wrong, as Bernie was named the ["Amendment King"](https://www.politifact.com/factchecks/2016/mar/24/bernie-sanders/bernie-sanders-was-roll-call-amendment-king-1995-2/) [by Rolling Stone in 2005](https://www.rollingstone.com/feature/inside-the-horror-show-that-is-congress-177955/). 
 
 ## Bernie and Trump
 
