@@ -26,12 +26,14 @@
 
 ### First state
 - Such as the [Shadow corporation app crash](https://youtu.be/9ljkWdXTx10?si=LXd_fXCDwyzQw2-i) before Pete Buttigieg [claimed](https://www.youtube.com/watch?v=cTnM870CCu8) to have just barely inched above Bernie by 2 delegates in the Iowa delegate vote, while Bernie [definitively sinched the popular vote](https://youtu.be/swJW-bVc2es?si=pNYINRyCP4Yq0qu1), February 3, 2020. 
-  - Specifically, the voting app that was used in Iowa, the first state to vote in the primaries, where polls [projected Bernie was going to win](https://projects.fivethirtyeight.com/2020-primary-forecast/iowa/), had ["bad code,"](https://youtu.be/A7WzQRXwxos?si=tjnnnbyCtalch4g8) and was built by a company literally called Shadow [with financial ties to Pete Buttigieg's campaign](https://www.washingtonexaminer.com/news/2609701/buttigieg-campaign-paid-firm-that-developed-voting-app-blamed-for-iowa-caucus-delays/). Ultimately, it was reported that Pete Buttigieg just barely won the delegate vote and Bernie Sanders won the popular vote. In my opinion, this was not orchestrated by Pete Buttigieg's campaign or the Democratic National Committee (that would be too on the nose) and is therefore a synchronicity, or, by my definition rooted in theorizing that the physics of nature can *cause* synchronicities, a "metaphysical phenomenon where a statistical divergence is causal or a psychological phenomenon where the meaning of a correlation is acausal."
+  - Specifically, the voting app that was used in Iowa, the first state to vote in the primaries, where polls [projected Bernie was going to win](https://projects.fivethirtyeight.com/2020-primary-forecast/iowa/), had ["bad code,"](https://youtu.be/A7WzQRXwxos?si=tjnnnbyCtalch4g8) and was built by a company literally called Shadow [with financial ties to Pete Buttigieg's campaign](https://www.washingtonexaminer.com/news/2609701/buttigieg-campaign-paid-firm-that-developed-voting-app-blamed-for-iowa-caucus-delays/). Ultimately, it was reported that Pete Buttigieg just barely won the delegate vote and Bernie Sanders won the popular vote. In my opinion, this was not orchestrated by Pete Buttigieg's campaign or the Democratic National Committee (that would be too on the nose) and is therefore a synchronicity, or a "statistically implausible coincidence."
+
+<!--by my definition rooted in theorizing that the physics of nature can *cause* synchronicities, a "metaphysical phenomenon where a statistical divergence is causal or a psychological phenomenon where the meaning of a correlation is acausal."-->
  
 ### Second and third states
 
 - Such as the fact that it was [statistically unprecedented](https://youtu.be/SknqmOfXDSI?si=67VTmYjfVix-xepM) for somebody to win the popular vote in Iowa, New Hampshire, [*and Nevada*](https://www.politico.com/news/2020/02/22/nevada-caucuses-biden-sanders-116719), as Bernie did, all three first states, and not become the party nominee.
-- Was that a synchronicity or the result of corruption?
+<!--- Was that a synchronicity or the result of corruption?-->
 
 ### Fourth state
 
