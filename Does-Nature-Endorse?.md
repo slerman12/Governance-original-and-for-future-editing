@@ -49,6 +49,8 @@
 
 ### Covid
 
+> Chapters in progress.
+
 - Such as the literal global plague killing [thereafter](https://youtu.be/VzHaF30606k?si=nPbeiUarnT1oFpkI) more Americans than the American Revolution, Civil War, and WWII, including Pearl Harbor, combined[^2]. 
   - But [at least America got Biden](https://youtu.be/BhvdaK_HgbQ?si=yZ3obsrd423oIe61). Even while Trump was still sitting his final days of his term, from [March 27, 2020](https://en.wikipedia.org/wiki/CARES_Act#:~:text=The%20Coronavirus%20Aid%2C%20Relief%2C%20and,pandemic%20in%20the%20United%20States.) - January 20, 2021, the president's hand, of the coming years, both Trump's and Biden's, was forced by the pandemic to pass uncharacteristically many left-wing or Bernie-type policies, also uncharacteristically left for Biden, too, though better, as he stood with workers and fought for indebted students:
     - Rapid [mass distribution of free medicine](https://youtu.be/T51a_7ljXnU?si=X0zRReRgZPKwkp4f).
