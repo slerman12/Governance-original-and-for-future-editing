@@ -8,7 +8,6 @@
 
 ## 2016
 
-
 - Such as the bird that [landed on Bernie's podium](https://youtu.be/vhezYYiTUm0?si=qVq6vOENRU2YvN3C), early 2016.
   - ...or rather, right beside the podium. And then, as the crowd of 19,000 people cheered, and Bernie began, "Now you see, this little bird doesn't know it..." the bird flew up to his podium and landed there, an arm's length away, as Bernie looked honored and speechless.
 - Such as the Bald Eagle (America's national bird) that [attacked Donald Trump](https://youtu.be/j1AU4qi7tWg?si=ItrWUDXTbLLN7Yw), 3.5 months before that.
@@ -24,18 +23,18 @@
 
 ## 2020
 
-### First State
+### First state
 - Such as the [Shadow corporation's app crash](https://youtu.be/9ljkWdXTx10?si=LXd_fXCDwyzQw2-i) before Pete Buttigieg [claimed](https://www.youtube.com/watch?v=cTnM870CCu8) to have barely inched 2 delegates above Bernie in the vote that happened through that app, while Bernie, [more definitively, sinched the popular vote](https://youtu.be/swJW-bVc2es?si=pNYINRyCP4Yq0qu1), February 3, 2020. 
   - Specifically, the voting app that was used in Iowa, the first state to vote in the primaries, where polls [projected Bernie was going to win](https://projects.fivethirtyeight.com/2020-primary-forecast/iowa/), had ["bad code,"](https://youtu.be/A7WzQRXwxos?si=tjnnnbyCtalch4g8) and was built by a company literally called Shadow [with financial ties to Pete Buttigieg's campaign](https://www.washingtonexaminer.com/news/2609701/buttigieg-campaign-paid-firm-that-developed-voting-app-blamed-for-iowa-caucus-delays/). Ultimately, it was reported that Pete Buttigieg just barely won the delegate vote and Bernie Sanders won the popular vote. In my opinion, this was not orchestrated by Pete Buttigieg's campaign or the Democratic National Committee (that would be too on the nose) and is therefore a synchronicity, which the running definition I'll use here is, "meaningful, statistically implausible observation, that might be interpreted as metaphysical or, with an authentic disagreement from at least one person dismissed by many as coincidence."
 
 <!--by my definition rooted in theorizing that the physics of nature can *cause* synchronicities, a "metaphysical phenomenon where a statistical divergence is causal or a psychological phenomenon where the meaning of a correlation is acausal."-->
  
-### Second and Third States
+### Second and third states
 
 - Such as the fact that for somebody to win the popular vote in Iowa, New Hampshire, [*and Nevada*](https://www.politico.com/news/2020/02/22/nevada-caucuses-biden-sanders-116719), as Bernie did, and not become the party nominee, was [statistically unprecedented](https://youtu.be/SknqmOfXDSI?si=67VTmYjfVix-xepM), all three first states.
 <!--- Was that a synchronicity or the result of corruption?-->
 
-### Fourth State
+### Fourth state
 
 - Such as the fact that Biden's [first victory in a presidential primary ever](https://en.m.wikipedia.org/wiki/2020_South_Carolina_Democratic_presidential_primary), and Biden's [first comeback victory](https://en.m.wikipedia.org/wiki/2020_South_Carolina_Democratic_presidential_primary) over Bernie, in the fourth state, marked the exact day, February 29, 2020, of the [first American reported by the CDC to die from Covid](https://www.cdc.gov/museum/timeline/covid19.html#:~:text=February%2029%2C%202020&text=CDC%20and%20the%20Washington%20Department,later%20died%20of%20his%20illness.). ["Biden celebrates a comeback victory in South Carolina’s Democratic primary, just as the U.S. reports what was believed to be the country’s first death from the coronavirus."](https://www.washingtonpost.com/graphics/2020/politics/pandemic-campaign-trump-biden/) — Washington Post. In his victory speech that day, Biden by chance announced, ["We are very much alive,"](https://youtu.be/UNqwH_3Hyds?si=A-oa2X_2TQSD4AiZ) independent from that death, as the plague, and [one of the worst history has ever seen](https://www.gavi.org/vaccineswork/historys-seven-deadliest-plagues), began in America. <!--Though, that wasn't the turning point for Biden's campaign yet.-->
   - Former President Obama, without whom Joe Biden probably wouldn't have stood a chance, had called Bernie ["an Old Testament prophet,"](https://xlauren-mx.medium.com/in-a-talk-with-bernie-sanders-obama-revealed-a-lot-about-the-democratic-party-8188ea3c1cae) and had added, "Here is the thing, though. Prophets don’t get to be king." 
