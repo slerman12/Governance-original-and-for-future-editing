@@ -139,6 +139,7 @@
               - [People make mistakes.](https://www.vox.com/culture/2023/9/18/23878706/russell-brand-sexual-assault-allegations) (links to accusations)
         - As for job market competition, the most dangerous competitor is automation and robotics in industry, but machines, or people, doing the work we don't want to do, for us, under a good economic system, should not be a bad thing.
           - Unless that work is love, and I mean love. TV, movies, video games, porn, dildos, fleshlights, Harry Potter books, I don't know. Sex bots.
+            - And I think there's something to be said about texting, and clarified here. I wrote "and I mean love." That is to say, technology should not take the place of humans in giving and receiving love. Humanizing technology is as much of a risk to the future day as objectifying humans. But it's not to say, that those listed things are "actual love," meaning, they are not bad. As long as we remember they are technology, fake, synthetic, and that behind them might be a human who's in enormous pain, writing this right now.
 
 ### Voting Reforms
 
