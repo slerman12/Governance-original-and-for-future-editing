@@ -132,8 +132,7 @@
   - ~13 swing states get to disproportionately decide between Kamala and some other Democratic nominee, in the 2024 race.
 - There is a [175% increase in black women voter registration in 13 states](https://youtu.be/1EaP98vbR84?si=79f0oI29BQXHRbBz&t=342), under Kamala as the nominee. Citing as reported, [13](https://youtu.be/1EaP98vbR84?si=79f0oI29BQXHRbBz&t=342).
   - Kamala Harris comes from a family of migrants, including a Jamaican father and an Indian mother. I don't know if that's a conscious joke by the universe, but America is built on black people and Native Americans.
-    - Xenophobia is an extreme fear in America.
-      - Even though we are the immigrants.
+    - Xenophobia is an extreme fear in America. Even though we are the immigrants, the colonialists who literally took the land that wasn't ours — from Native Americans. Not Indians. The British did that. Too.
         - Voter identification laws make sense.
         - As for job market competition, the most dangerous competitor is automation and robotics in industry, but machines, or people, doing the work we don't want to do, for us, under a good economic system, should not be a bad thing.
 
