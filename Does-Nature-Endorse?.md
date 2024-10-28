@@ -77,6 +77,10 @@
   - Obama was wrong, as Bernie was known as the ["Amendment King"](https://www.politifact.com/factchecks/2016/mar/24/bernie-sanders/bernie-sanders-was-roll-call-amendment-king-1995-2/) prior to his presidential runs, [as named by Rolling Stone in 2005](https://www.rollingstone.com/feature/inside-the-horror-show-that-is-congress-177955/). 
 -->
 
+### Amendment King
+
+  - Obama was wrong, as Bernie was known as the ["Amendment King"](https://www.politifact.com/factchecks/2016/mar/24/bernie-sanders/bernie-sanders-was-roll-call-amendment-king-1995-2/) prior to his presidential runs, [as named by Rolling Stone in 2005](https://www.rollingstone.com/feature/inside-the-horror-show-that-is-congress-177955/). 
+
 ## Bernie and Trump
 
 - Such as the beyond ["unprecedentedness" of Bernie Sanders](https://qr.ae/psqdok) overall, including that he's a Jewish Democratic Socialist who has been [grass-roots funded](https://youtu.be/MHJIzkKLqkM?si=-P-S1n0LnNezVQDv) his entire political career, [breaking all funding records](https://youtu.be/akYmB9ZX8ps?si=11YIwObmXBxvtTU_), and his [authenticity](https://youtu.be/aOOfwN0iYxM?si=FpuCvykgHMS0hogI), [principles](https://youtu.be/PFdgmm69BpI?si=bkI9lNUk9KIN_tQZ), [consistency](https://youtu.be/JXo5fe7dYWk?si=bNmvmgcMpLBdp6Yl), and [hard work](https://www.newyorker.com/news/amy-davidson/bernie-sanderss-hard-fight-for-hillary-clinton); and he [doesn't take his success for granted](https://youtu.be/iRMICNBXp2Q?si=k4Ew6j8J5yR9j2ti); and, in the 2020 campaign, he was 77, considered by the media as [too old](https://youtu.be/1RXSYhGJ9yw?si=qu6jWB_DaL-Y6Tal) (a criticism that should never be made of him again), even as he was working [harder](https://youtu.be/1a2gqS-W8Tg?si=djEUfiuGBcOgAgi0&t=23) than any other candidate on the campaign trail, [as he was](https://youtu.be/_om-x323Em0?si=GFUvAEn5YUCGtjQ0) (and [still is](https://youtu.be/O0fYQkQBOGc?si=QJ_c7Xyljn8ZFt5d&t=112)) off the campaign trail.
