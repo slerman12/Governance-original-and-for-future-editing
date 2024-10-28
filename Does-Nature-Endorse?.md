@@ -11,7 +11,7 @@
 - Such as the bird that [landed on Bernie's podium](https://youtu.be/vhezYYiTUm0?si=qVq6vOENRU2YvN3C), early 2016.
   - ...or rather, right beside the podium. And then, as the crowd of 19,000 people cheered, and Bernie began, "Now you see, this little bird doesn't know it..." the bird flew up to his podium and landed there, an arm's length away, as Bernie looked honored and speechless.
 - Such as the Bald Eagle (America's national bird) that [attacked Donald Trump](https://youtu.be/j1AU4qi7tWg?si=ItrWUDXTbLLN7Yw), 3.5 months before that.
-- Such as Hillary Clinton being nominated over Bernie in 2016, who only won 23 out of 50 states, and us being punished with a cartoon for a President for 4 years.
+- Such as Hillary Clinton being nominated over Bernie, who only won 23 out of 50 states, in 2016, and democrats being punished with Trump for 4 years.
 
 ## 2020
 
