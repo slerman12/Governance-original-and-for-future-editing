@@ -31,8 +31,13 @@
  
 ### Second and third states
 
-- Such as the fact that for somebody to win the popular vote in Iowa, the first state, [and New Hampshire](https://www.politico.com/news/2020/02/11/new-hampshire-primary-results-2020-114122) [*and Nevada*](https://www.politico.com/news/2020/02/22/nevada-caucuses-biden-sanders-116719), the second and third states, as Bernie did, and not become the party nominee, was [statistically unprecedented](https://youtu.be/SknqmOfXDSI?si=67VTmYjfVix-xepM)<!--, all three first states-->.
+- Such as the fact that for somebody to win the popular vote in Iowa, [New Hampshire](https://www.politico.com/news/2020/02/11/new-hampshire-primary-results-2020-114122), [*and Nevada*](https://www.politico.com/news/2020/02/22/nevada-caucuses-biden-sanders-116719), as Bernie did, and not become the party nominee, was [statistically unprecedented](https://youtu.be/SknqmOfXDSI?si=67VTmYjfVix-xepM)<!--, all three first states-->.
 <!--- Was that a synchronicity or the result of corruption?-->
+
+<!--
+- Such as the fact that for somebody to win the popular vote in Iowa, the first state, [and New Hampshire](https://www.politico.com/news/2020/02/11/new-hampshire-primary-results-2020-114122) [*and Nevada*](https://www.politico.com/news/2020/02/22/nevada-caucuses-biden-sanders-116719), the second and third states, as Bernie did, and not become the party nominee, was [statistically unprecedented](https://youtu.be/SknqmOfXDSI?si=67VTmYjfVix-xepM)
+- Such as the fact that for somebody to win the popular vote in the first state, Iowa, and the second and third states, [New Hampshire](https://www.politico.com/news/2020/02/11/new-hampshire-primary-results-2020-114122) and [Nevada](https://www.politico.com/news/2020/02/22/nevada-caucuses-biden-sanders-116719), as Bernie did, and not become the party nominee, was [statistically unprecedented](https://youtu.be/SknqmOfXDSI?si=67VTmYjfVix-xepM)
+-->
 
 ### Fourth state
 
