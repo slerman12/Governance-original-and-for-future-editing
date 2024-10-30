@@ -69,7 +69,7 @@
     - Not to mention [a large reduction in carbon pollution](https://www.jpl.nasa.gov/news/emission-reductions-from-pandemic-had-unexpected-effects-on-atmosphere) [due to the pandemic, especially from automobile traffic and industry](https://unfccc.int/sites/default/files/resource/1.GCP_.pdf), and Bernie's recent [Solar for All bill that passed](https://youtu.be/8hi-JpwoLi4?si=plTrjIPQ1Iuk_-SO).
   - Perhaps this forebodes that the next pandemic will be in the mass automation of industry, and in unlimited, clean energy, and that a revolution in public health with respect to medical systems, school, and food is needed.
 
-<!-- I could add mail-in voting connection to online voting portal -->
+<!-- I could add mail-in ballots connection to online voting portal -->
 
 <!--
       - For elaboration on the influence of Covid to American perceptions of the medical system and medical institutions, their practices, and my specific policies, more discussion [below](#kamala-and-democracy).
