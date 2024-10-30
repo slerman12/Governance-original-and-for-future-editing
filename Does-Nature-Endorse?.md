@@ -141,7 +141,7 @@
 - "13" is the *8th* major synchronicity of 1968, since I didn't include it in the counting before.
   - Only 13 states were allowed to vote in the Democratic primaries in 1968, and the others weren't counted at all.
   - ~13 swing states get to disproportionately decide between Kamala and some other Democratic nominee, in the 2024 race.
-- There is a [175% increase in black women voter registration in 13 states](https://youtu.be/1EaP98vbR84?si=79f0oI29BQXHRbBz&t=342), under Kamala as the nominee. Citing as reported, [13](https://youtu.be/1EaP98vbR84?si=79f0oI29BQXHRbBz&t=342). 13 is an ominous number, but that is not ominous. That is good. 
+  - There is a [175% increase in black women voter registration in 13 states](https://youtu.be/1EaP98vbR84?si=79f0oI29BQXHRbBz&t=342), under Kamala as the nominee. Citing as reported, [13](https://youtu.be/1EaP98vbR84?si=79f0oI29BQXHRbBz&t=342). 13 is an ominous number, but that is not ominous. That is good. 
 
 ### Podcast election
 
