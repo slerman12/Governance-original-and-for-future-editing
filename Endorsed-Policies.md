@@ -14,4 +14,4 @@
 
 ## Universal Basic Jobs
 
-## Tech Monopoly Partial Democratization Processes and Algorithm Open-Sourcing Laws
+## Tech Monopoly Partial Democratization Processes, not just Busting
