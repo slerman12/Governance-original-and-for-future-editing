@@ -8,10 +8,10 @@
 
 ## Health Insurers, Including Medicaid and Medicare, Should Pay for Organic Type Food
 
-## 32 Hour Work Week 
+## 32 Hour Work Week
+
+## Online Voting Portal 
 
 ## Universal Basic Jobs
 
 ## Tech Monopoly Partial Democratization Possibly, not just Busting
-
-## Online Voting Portal 
