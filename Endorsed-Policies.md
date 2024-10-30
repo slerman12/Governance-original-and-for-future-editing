@@ -14,4 +14,4 @@
 
 ## Universal Basic Jobs
 
-## Tech Monopoly Partial Democratization Possibly, not just Busting
+## Tech Monopoly Partial Democratization Processes, not just Busting
