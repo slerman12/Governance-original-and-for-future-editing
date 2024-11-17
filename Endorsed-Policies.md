@@ -27,7 +27,7 @@ A day or two after Biden announced dropping out, Kamala was already presumed to 
 > "While certainly possibly, you are talking about many months of time and millions of dollars to define, design, develop, thoroughly test and implement a system like this."
 Here is how I replied:
 > 
-> "The DNC coronation is a good testing ground, even for a subpar prototype, since the current trajectory for them is no election at all, and a coronation by superdelegates."
+> "The DNC coronation is a good testing ground, even for a subpar prototype, since the current trajectory for them is no election at all, and a coronation by superdelegates." [Correction: Delegates]
 > 
 > Then I replied again with more details about the gradual roll out, not just for the DNC coronation but for future elections as well:
 > 
